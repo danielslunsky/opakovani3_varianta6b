@@ -1,0 +1,1 @@
+# opakovani3_varianta6b
